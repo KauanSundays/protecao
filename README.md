@@ -1,1 +1,1 @@
-# protecao
+autorizado
